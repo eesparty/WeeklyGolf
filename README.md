@@ -1,6 +1,6 @@
 # WeeklyGolf
 
-## June 14, 2017
+## June 24, 2017
 ### Carrington 7:20 AM
 ### 3 Tee Times
 
