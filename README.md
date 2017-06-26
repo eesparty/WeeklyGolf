@@ -1,7 +1,9 @@
-# WeeklyGolf
+# WeeklyGolf  
+## July 1, 2017  
+### Nothing Scheduled  
 
-## June 24, 2017
-### Carrington 7:20 AM
-### 2 Tee Times
+## July 8, 2017  
+### TBD  
+
 
 ### [Participants](https://github.com/eesparty/WeeklyGolf/projects/1)
