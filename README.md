@@ -1,9 +1,8 @@
 # WeeklyGolf  
-## July 1, 2017  
-### Nothing Scheduled  
+## July 15, 2017  
+### Sandy Creek  
+3 Tee Times - 7:15  
 
-## July 8, 2017  
-### TBD  
 
 
 ### [Participants](https://github.com/eesparty/WeeklyGolf/projects/1)
