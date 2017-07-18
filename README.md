@@ -1,7 +1,6 @@
 # WeeklyGolf  
-## July 15, 2017  
-### Sandy Creek  
-3 Tee Times - 7:15  
+## July 22, 2017  
+### No Golf
 
 
 
