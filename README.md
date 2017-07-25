@@ -1,6 +1,7 @@
 # WeeklyGolf  
-## July 22, 2017  
-### No Golf
+## July 29, 2017  
+### Gateway
+7:12 AM - 3 Tee Times
 
 
 
