@@ -1,7 +1,6 @@
 # WeeklyGolf  
-## July 29, 2017  
-### Gateway
-7:12 AM - 3 Tee Times
+## August 12, 2017  
+### TBD
 
 
 
