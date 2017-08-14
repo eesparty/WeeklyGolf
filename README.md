@@ -1,6 +1,6 @@
 # Weekly Golf  
 ## August 19, 2017  
-### TBD
+### Raisin River East - TBD
 Two Tee Times  
 
 
