@@ -1,7 +1,7 @@
 # Weekly Golf  
-## August 12, 2017  
-### Giant Oak - 7:00 AM  
-Three Tee Times  
+## August 19, 2017  
+### TBD
+Two Tee Times  
 
 
 
