@@ -1,6 +1,6 @@
 # Weekly Golf  
-## August 19, 2017  
-### Raisin River East - TBD
+## May 12, 2018  
+### Willow Metropark - 7:44
 Two Tee Times  
 
 
