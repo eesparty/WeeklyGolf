@@ -1,6 +1,6 @@
 # Weekly Golf  
 ## May 12, 2018  
-### Willow Metropark - 7:44
+### Habor Dunes - 7:37
 Two Tee Times  
 
 
