@@ -1,6 +1,6 @@
 # Weekly Golf  
-## May 12, 2018  
-### Habor Dunes - 7:37
+## June 16, 2018  
+### Gateway - TBD
 Two Tee Times  
 
 
