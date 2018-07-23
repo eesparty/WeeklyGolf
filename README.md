@@ -1,6 +1,6 @@
 # Weekly Golf  
-## June 16, 2018  
-### Gateway - TBD
+## July 28, 2018  
+### Gateway - 7:28 AM
 Two Tee Times  
 
 
