@@ -1,6 +1,6 @@
 # Weekly Golf  
-## July 28, 2018  
-### Gateway - 7:28 AM
+## August 4, 2018  
+### Inkster Valley - 7:32 AM
 Two Tee Times  
 
 
