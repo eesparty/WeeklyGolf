@@ -1,7 +1,7 @@
 # Weekly Golf  
-## Sept 4, 2018  
-### Pierce Lake and the Grande 
-7:30 and 1:12
+## June 27, 2020  
+### Willow 
+7:28  
 Three Tee Times  
 
 
